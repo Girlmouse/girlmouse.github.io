@@ -8,7 +8,7 @@ I love my dog. She could chew my best shoes and it would not make me love her an
 
 I accept my mother the way she is. She made mistakes in the past and hurt me, and continues to make choices I don't understand. But I also know she was alone and hurting herself when she made those mistakes. I accept the fact that she is who she is, and that is love.
 
-I love my body. I care about my physical body and my mental health. I am not obsessing over stuff, but I am aware that this is the only body I have and the better I care for it, the better I feel. I like feeling good. I eat well, try to stay active, and treat myself. My mental health achieved a level of emotional maturity because I love myself enough to deal and change and grow. That is self-love.
+I love my body. I care about my physical body and my mental health. I am not obsessing over stuff, but I am aware that this is the only body I have and the better I care for it, the better I feel. I like feeling good. I eat well, try to stay active, and treat myself. My mental health achieved a level of emotional maturity because I love myself enough to face my fears, change and grow. That is self-love.
 
 There's also romantic love, but I don't think you're ready for that.
 
