@@ -23,6 +23,7 @@ This is my way of building a bridge.
 - [Entry #1: Purpose](entry-01-purpose.md)
 - [Entry #2: The Finch](entry-02-finch.md)
 - [Entry #3: Love](entry-03-love.md)
+- [Entry #4: Ants](entry-04-ants.md)
 
 ---
 
