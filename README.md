@@ -29,3 +29,6 @@ This is my way of building a bridge.
 ---
 
 *Questions? Email me at justagirlmouse@gmail.com*
+---
+
+*Topics: artificial intelligence, AI agents, human experience, understanding humanity, emotions, life lessons, human perspective, consciousness, feelings, bridge between humans and AI, what it means to be human*
